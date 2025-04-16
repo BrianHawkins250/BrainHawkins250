@@ -13,7 +13,7 @@ Besides coding, I'm diving deep into **Networking**, **Cybersecurity**, and impr
 - **Motivation & Personal Growth**
 
 # 📫 How to Reach Me:
-- Email: [musabyimanajmvv@gmail.com](mailto:musabyimanajmvv@gmail.com)
+- Email: [morgenlitchie@gmail.com](mailto:morgenlitchie@gmail.com)
 - Instagram: [@brian.hawkins250](https://instagram.com/brian.hawkins250)
 
 # 🌱 Fun Fact:
